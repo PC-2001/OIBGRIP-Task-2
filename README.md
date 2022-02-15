@@ -1,1 +1,0 @@
-# OIBGRIP-Task-2
